@@ -1,2 +1,2 @@
-My first readme
-i am a cool dude 
+My first readme pls let me in
+
